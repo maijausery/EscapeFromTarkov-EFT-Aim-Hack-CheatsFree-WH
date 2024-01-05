@@ -133,6 +133,8 @@ Has a built-in spoofer.
 ![Preview](https://i.imgur.com/23o3UM2.png)
 ![Preview](https://i.imgur.com/O2Ukrsp.png)
 
+---
+
 ### Our Offerings: 
 
 **Unique Cheats for Your Favorite Games:👀** 
@@ -151,6 +153,8 @@ Tailor your gaming experience to perfection with our optimization software. From
 
 # Important Information
 [![Alt текст](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/buy.png)](https://t.me/go0d_games)
+
+---
 
 <div align="center">
  <h1>**Explore the Gaming Universe with GooD Games!** 🚀</h1>
@@ -178,6 +182,8 @@ This product does not coerce users into any actions and is provided solely for i
 Please be aware that using cheats may violate game rules and result in the suspension of your account. Use this product at your own risk.
 
 [![Good Games Logo](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/Supp.png)](https://t.me/GGsupo)
+
+---
 
 ### **Choose "Good Games Solutions" and transform your gaming experience into something truly extraordinary. Let the adventure begin! 🚀🎮**
 
