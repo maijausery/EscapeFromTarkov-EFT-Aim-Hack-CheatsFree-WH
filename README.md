@@ -6,6 +6,10 @@
 
 ![Good Games Logo](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/zavlec3.png)
 
+### Welcome to Good Games Solutions - Elevating Your Gaming Experience! 
+
+At "Good Games Solutions," we are more than just a gaming software provider – we are your dedicated partner in the ever-evolving world of gaming. Our mission is to bring innovation, excitement, and security to your virtual adventures.
+
 ---
 
 ### Functionalities of this Cheat
@@ -120,11 +124,6 @@ Has a built-in spoofer.
 ##### Clients
 - Supported Clients
   - BSG Launcher
-
-
-### Welcome to Good Games Solutions - Elevating Your Gaming Experience! 
-
-At "Good Games Solutions," we are more than just a gaming software provider – we are your dedicated partner in the ever-evolving world of gaming. Our mission is to bring innovation, excitement, and security to your virtual adventures.
 
 ---
 
