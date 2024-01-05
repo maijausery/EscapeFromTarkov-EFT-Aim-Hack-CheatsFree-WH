@@ -8,25 +8,6 @@
 
 ---
 
-## Description
-
-**Explore the Gaming Universe with GooD Games!** 🚀
-
-### Master Your Games: 
-
-- Dominate in CS:GO with enhanced aimbots and configurations.
-- Survive and conquer in RUST with innovative survival scripts.
-- Excel in PUBG with precise aimbots and advanced detection settings.
-- Achieve victory in Valorant with cutting-edge cheats.
-- Develop in Fortnite, Paladins, ARK, and other games!
-
-### Revolutionary Cheats, Unparalleled Features: 
-
-- Introducing APEX LEGENDS CHEAT and WARZONE 2.0.
-- Feel the intensity of DayZ and Escape from Tarkov.
-- Join the battle stylishly with CS 2 and Rogue Company.
-- Explore new dimensions with Perfect Silent Aim and Ignore Team.
-
 ### Functionalities of this Cheat
 
 #### SMG PRIVATE - Escape From Tarkov
@@ -172,6 +153,25 @@ Tailor your gaming experience to perfection with our optimization software. From
 
 # Important Information
 [![Alt текст](https://s3.timeweb.com/1f7344ba-1965520e-2817-4cbe-af09-45fc695f40be/buy.png)](https://t.me/go0d_games)
+
+<div align="center">
+ <h1>**Explore the Gaming Universe with GooD Games!** 🚀</h1>
+</div>
+
+### Master Your Games: 
+
+- Dominate in CS:GO with enhanced aimbots and configurations.
+- Survive and conquer in RUST with innovative survival scripts.
+- Excel in PUBG with precise aimbots and advanced detection settings.
+- Achieve victory in Valorant with cutting-edge cheats.
+- Develop in Fortnite, Paladins, ARK, and other games!
+
+### Revolutionary Cheats, Unparalleled Features: 
+
+- Introducing APEX LEGENDS CHEAT and WARZONE 2.0.
+- Feel the intensity of DayZ and Escape from Tarkov.
+- Join the battle stylishly with CS 2 and Rogue Company.
+- Explore new dimensions with Perfect Silent Aim and Ignore Team.
 
 **Warning:**   
 This product does not coerce users into any actions and is provided solely for informational and entertainment purposes.
